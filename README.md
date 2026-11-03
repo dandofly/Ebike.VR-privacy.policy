@@ -1,1 +1,1 @@
-# insaneboxvr-privacy-policy
+# ebike.vr-privacy-policy
